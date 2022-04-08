@@ -1,1 +1,1 @@
-Hi, my name is Jimmy Mendez and i love to build.
+Hi, my name is Jimmy Mendez and I love to build.
